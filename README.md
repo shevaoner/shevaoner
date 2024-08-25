@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Missa Joy
-- 👀 I’m interested in crypto
+- 👀 I’m interested in Freedom through Crypto! I love Basketball and Football. I want to commit to philanthropic projects dedicated to helping incarcerated people and reforming laws especially surrounding drug addiction as well as Independent music labels and Independent musicians.
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate on OnChain OnBlock Projects
 - 📫 How to reach me shevaoner@me.com
